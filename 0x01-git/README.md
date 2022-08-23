@@ -1,1 +1,1 @@
-  David is a foul
+  David is a fool
